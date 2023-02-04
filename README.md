@@ -1,1 +1,1 @@
-# JimmyShoppinf
+# JimmyShopping
